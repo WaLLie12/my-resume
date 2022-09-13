@@ -1,1 +1,1 @@
-# my-resume. But not full information is mine.
+# my-resume. But not all the information is mine :)
